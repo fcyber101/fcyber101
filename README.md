@@ -69,4 +69,3 @@ I'm always open to:
 - 📧 Email: fcybercode@gmail.com
 - 🌐 Personal Website/Blog: www.
 
-<img width="451" height="697" alt="image" src="https://github.com/user-attachments/assets/7073f7a0-7c9f-49e3-ba68-d7096dc17c16" />
