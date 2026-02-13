@@ -66,6 +66,6 @@ I'm always open to:
 
 **Connect with me:**
 - 💼 [LinkedIn Profile]()
-- 📧 Email: fcybercode@gmail.com
+- 📧 Email: fcyber101@protonmail.com
 - 🌐 Personal Website/Blog: www.
 
